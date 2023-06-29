@@ -19,7 +19,7 @@ ETA - 21 hours total
 
 2 to 3 hours a day
 
-7 - 14 days
+7 - 14 days (6/29 - 7/6)
 
 6/22/23 - 
 
